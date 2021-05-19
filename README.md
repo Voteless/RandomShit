@@ -1,2 +1,3 @@
 # RandomShit
-MONKEY SHIT BOTCH
+Methods Public Shit 
+Selfbot
